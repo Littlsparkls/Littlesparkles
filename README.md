@@ -16,4 +16,4 @@
 - Maternal Digital Twin Project
 
 ## 📫 Connect with me
-LinkedIn: linkedin.com/in/abigaelajala/
+LinkedIn: https://linkedin.com/in/abigaelajala/
